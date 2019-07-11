@@ -1,2 +1,2 @@
 # my-space
-[yukirang](http://www.yukirang.space)
+[yukirang](http://yukirang.space)
